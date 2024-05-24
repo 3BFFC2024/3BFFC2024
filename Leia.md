@@ -10,4 +10,5 @@ Aqui estão algumas ideias para você começar:
 - 🌱 Atualmente estou aprendendo... Marketing e programação
 - 🤔 Estou procurando ajuda com ... Programação
 - ⚡ Curiosidade: ... Já gravei vídeo com Youtubers famosos
--->
+--> ![](https://www.flickr.com/photos/76230847@N03/6844037679)
+
